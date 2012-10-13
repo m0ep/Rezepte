@@ -1,8 +1,8 @@
 Schinken-Käse Muffins
 =====================
 
-Zutaten
--------
+Zutaten (12 Muffins)
+--------------------
 
 * 160g gekochter Schinken
 * 2 Zwiebeln
