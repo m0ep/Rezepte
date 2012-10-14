@@ -21,5 +21,5 @@ Zubereitung
 
 Dann den Ofen auf volle Pulle bei Ober- und Unterhitze vorheizen, den Teig auf einem der kleinen runden Backbleche mit Olivenöl dünn ausbreiten und auf den Boden des Ofens legen. Nach Möglichkeit immer nur eine Pizza, dann wird sie auch von oben schön braun und von unten richtig kross.
 
-Quelle: [http://forum.mods.de/bb/thread.php?TID=202686&PID=1241887795#reply_1241887795](http://forum.mods.de/bb/thread.php?TID=202686&PID=1241887795#reply_1241887795)
+[Quelle](http://forum.mods.de/bb/thread.php?TID=202686&PID=1241887795#reply_1241887795)
 

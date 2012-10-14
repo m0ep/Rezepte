@@ -29,4 +29,4 @@ Zubereitung
 5. Mehlgemisch kurz unter die Eimasse rühren.
 6. Den Teig in die Förmchen füllen und im Backofen etwa 30 Minuten goldbraun backen.
 
-Quelle: [http://www.chefkoch.de/rezepte/408541130511763/Herzhafte-Schinken-Kaese-Muffins.html](http://www.chefkoch.de/rezepte/408541130511763/Herzhafte-Schinken-Kaese-Muffins.html)
+[Quelle](http://www.chefkoch.de/rezepte/408541130511763/Herzhafte-Schinken-Kaese-Muffins.html)

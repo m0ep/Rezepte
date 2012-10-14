@@ -22,4 +22,4 @@ Die Zwiebeln klein hacken und mit dem Speck ca. 10 Minuten andünsten. Dann das 
 
 Nun das Blech in den vorgeheizten Ofen schieben und bei 180°C ca. 25-30 Minuten backen.
 
-Quelle: [http://www.chefkoch.de/rezepte/549121152539534/Zwiebelkuchen-Muffins.html](http://www.chefkoch.de/rezepte/549121152539534/Zwiebelkuchen-Muffins.html)
+[Quelle](http://www.chefkoch.de/rezepte/549121152539534/Zwiebelkuchen-Muffins.html)

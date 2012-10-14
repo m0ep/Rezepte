@@ -29,4 +29,4 @@ Bei 180 Grad etwa 20 Minuten backen, bis die Muffins oben aufreißen.
 
 **Tipp:** Zum Einfüllen einen Spritzbeutel benutzen, da der Teig sehr zäh ist.
 
-Quelle: [http://www.chefkoch.de/rezepte/784461181717133/Muffins-mit-Schafskaese.html](http://www.chefkoch.de/rezepte/784461181717133/Muffins-mit-Schafskaese.html)
+[Quelle](http://www.chefkoch.de/rezepte/784461181717133/Muffins-mit-Schafskaese.html)
