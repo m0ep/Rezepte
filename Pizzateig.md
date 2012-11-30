@@ -5,7 +5,7 @@ Zutaten (4 Runde Pizzen)
 ------------------------
 
 * 400g Weizenmehl 550
-* 100g Hartweizengriß
+* 100g Hartweizengrieß
 * 1 EL Meersalz
 * 7g Trockenhefe
 * 1 EL Zucker (braun)
